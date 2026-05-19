@@ -4,7 +4,7 @@
 
 A community-driven pizzeria in Bangalore bringing together cycling culture, wood-fired pizza, and slow evenings.
 
-🌐 **[nithinnu.in](https://nithinnu.in)**
+🌐 **[nitinnu.in](https://nitinnu.in)**
 
 ## About
 
