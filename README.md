@@ -15,7 +15,7 @@ Ni Tinnu started as a simple idea between friends — good pizza, cycling rides,
 ## Connect
 
 - 📱 [WhatsApp](https://wa.me/919632040187)
-- 📸 [Instagram — @nitinnu.pizza](https://instagram.com/nitinnu.pizza)
+- 📸 [Instagram — @nitinnu](https://instagram.com/nitinnu.pizza)
 - 📧 eatnitinnu@gmail.com
 - 📍 Bangalore, India
 
